@@ -6,11 +6,14 @@
 
 ### Live Streams
 [Youtube](https://www.youtube.com/@ai-peter/live)
+
 [Twitch](https://www.twitch.tv/ai_peter)
+
 [Kick](https://kick.com/ai-peter)
 
 ### Clips
 [clips.aipeter.live](https://clips.aipeter.live)
+
 [TikTok](https://tiktok.com/@ai_peter)
 
 ### Donate
